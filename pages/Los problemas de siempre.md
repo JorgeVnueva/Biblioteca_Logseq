@@ -1,0 +1,4 @@
+- No pronuncio bien algunas palabras. Debo ver a una terapeuta del lenguaje
+	- Empiezo el ejercicio del lapiz en la boca para memorar mi habla. Me doy cuenta que tengo problemas a la hora de pronunciar la **s**. Tengo que practicarla.
+	- La **c**
+	- Palabras para practicar **necesario; cascara: carro;mas;atrás**
