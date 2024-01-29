@@ -1,5 +1,0 @@
-# Objetos
-- Herencia
-- UML
-- Mensajes
--
