@@ -1,4 +1,3 @@
-- Alias::AGA
 - Alabeadas
 - Autovalor
 -
